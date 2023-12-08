@@ -1,5 +1,5 @@
 
-### Olá! Sou o Ivo Junior 
+### Olá! Sou o Ivo Junior,
 
 ### FALE COMIGO
 
